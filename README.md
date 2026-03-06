@@ -1,8 +1,12 @@
 *read please !!*
 
+i repeat !! i have often *overstimulation episodes* , mostly because pressured / forced ,ect [ nd also occasional meltdowns caused by upsetting situations , unallowed ect ]
 
+‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
+୨ৎ . ᛝ Haii im sorry if my behavior is weird , if im childish although my age is viewed *mature* , or me myself is problematic .
+and i reassure you that im trying to change myself to be the best i am  ; ૮₍ ´ ꒳ `₎ა ˚. ᵎᵎ
 
+i have trouble making friends / im scared of interacting w new ppl , but that doesnt mean i dont want to make friends at all .ᐟ.ᐟ
 
-
-![image alt]https://github.com/avengeddeath/avengeddeath/blob/0f5c6a5e46bc2da2cb75ce183ca0174beca76a57/d736a2e9cac7d6dfef4dba44ab76725c%20(1).jpg
+Atabook nd strwpage is in wip !!!!
