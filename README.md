@@ -2,7 +2,7 @@
 
 i repeat !! i have often *overstimulation episodes* , mostly because pressured / forced ,ect [ nd also occasional meltdowns caused by upsetting situations , unallowed ect ]
 
-‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
+‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿ ![Image](https://github.com/user-attachments/assets/42121020-3663-49a0-aa36-25785782c92c)
 
 ୨ৎ . ᛝ Haii im sorry if my behavior is weird , if im childish although my age is viewed *mature* , or me myself is problematic .
 and i reassure you that im trying to change myself to be the best i am  ; ૮₍ ´ ꒳ `₎ა ˚. ᵎᵎ
