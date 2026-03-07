@@ -10,3 +10,5 @@ and i reassure you that im trying to change myself to be the best i am  ; ૮₍
 i have trouble making friends / im scared of interacting w new ppl , but that doesnt mean i dont want to make friends at all .ᐟ.ᐟ
 
 Atabook nd strwpage is in wip !!!!
+
+![Image](https://github.com/user-attachments/assets/36f63acb-c53a-4cb8-a470-a1c26e0a469b)
